@@ -37,6 +37,7 @@
 ### 🌐 Encuéntrame en
 
 - GitHub: [@JGerardoToledoR](https://github.com/JGerardoToledoR)
+- Gmail: [jgerardo.toledor@gmail.com](mailto:jgerardo.toledor@gmail.com)
 - 💌 Pronto agregaré más redes...
 
 ---
